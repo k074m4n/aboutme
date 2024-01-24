@@ -6,9 +6,9 @@
 
 You can contact me on:
 
--✉️ My Personal Mail: kotaman_@hotmail.com
+-✉️ My Personal Mail: kotaman_business@hotmail.com
 
--🐦 My Twitter: @Kotaman_
+-🐦 My Twitter: @k074m4n
 
 
 <!---
